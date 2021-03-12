@@ -1,1 +1,12 @@
-# Menu-Pecel-Pincuk-Godong-Ijo
+
+![COVER DEPAN P - Copy](https://user-images.githubusercontent.com/80503416/110893704-12f6e400-8329-11eb-9169-7243e9c65f48.jpg)
+![1-2 P - Copy](https://user-images.githubusercontent.com/80503416/110893715-18542e80-8329-11eb-8347-d40a2ce28b90.jpg)
+![3-4 P - Copy](https://user-images.githubusercontent.com/80503416/110893829-55202580-8329-11eb-99d1-c267062962f8.jpg)
+![5-6 P - Copy](https://user-images.githubusercontent.com/80503416/110893871-66693200-8329-11eb-898b-64a3f741ba6a.jpg)
+![7-8 P - Copy](https://user-images.githubusercontent.com/80503416/110893893-7254f400-8329-11eb-8348-e91be3996cb2.jpg)
+![9-10 P - Copy](https://user-images.githubusercontent.com/80503416/110893923-7e40b600-8329-11eb-86a4-4e45d5262bd2.jpg)
+![11-12 P - Copy](https://user-images.githubusercontent.com/80503416/110893941-87318780-8329-11eb-84a3-e2da57f852bb.jpg)
+![13-14 P - Copy](https://user-images.githubusercontent.com/80503416/110893959-90225900-8329-11eb-88a6-628bbe0ff264.jpg)
+![15-16 P - Copy](https://user-images.githubusercontent.com/80503416/110893980-9adcee00-8329-11eb-9a04-0aa2a1deea60.jpg)
+![17-18 P - Copy](https://user-images.githubusercontent.com/80503416/110894002-a4665600-8329-11eb-89da-2de41a639913.jpg)
+![COVER BELAKANG - Copy](https://user-images.githubusercontent.com/80503416/110894028-af20eb00-8329-11eb-933f-c23a9ec980c4.jpg)
